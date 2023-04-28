@@ -1,1 +1,2 @@
-# Zelda : Tears of the Kingdom Early access soon !!
+# Zelda : Tears of the Kingdom early access soon !!
+we'll keep you updated
